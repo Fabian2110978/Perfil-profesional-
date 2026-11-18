@@ -152,9 +152,8 @@ Santander Open Academy
 Prompting Responsable: Maximiza la IA en tu Negocio.
 
 IDIOMAS
-Español: Nativo.
 
 Inglés: Nivel básico.
 Español: Nativo.
-
-Inglés: Nivel básico.
+Link de LinkedIn:
+https://www.linkedin.com/in/fabi%C3%A1n-gonz%C3%A1lez-180a41428/
